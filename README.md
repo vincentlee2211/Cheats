@@ -1,4 +1,5 @@
-# Cheats
+# Take notes
+
 FAQ
 
 Q: Do you make this cheat? or u copy people work and claimed it to be yours?
