@@ -1,0 +1,2 @@
+# Cheats
+Crab game cheat
